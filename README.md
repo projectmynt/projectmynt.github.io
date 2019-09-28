@@ -1,2 +1,6 @@
 # projectmynt.github.io
-Homepage
+Coming soon.
+Próximamente.
+Kommt bald.
+Em breve.
+Binnenkort beschikbaar.
