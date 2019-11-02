@@ -1,2 +1,2 @@
 # Coming Soon
-Próximamente・Kommt bald・Em breve・Binnenkort beschikbaar・[Tugas](https://mynt.ga/tugas "Tugas")・[Khutbah](https://mynt.ga/tugas/khutbah "Khutbah")
+[PAS](https://mynt.ga/pas "PAS")・[Project Kuta](https://kuta.mynt.ga/ "Project Kuta")
